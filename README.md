@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **mdafzal9632@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1LPk4SqLAjHaUsD7vQAdHUBvHoNEvpDO8/view](https://drive.google.com/file/d/1LPk4SqLAjHaUsD7vQAdHUBvHoNEvpDO8/view)
+- 📄 Resume **[here](https://drive.google.com/file/d/1LPk4SqLAjHaUsD7vQAdHUBvHoNEvpDO8/view)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">

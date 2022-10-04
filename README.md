@@ -20,7 +20,7 @@
 
 - 🗺️ Want to know more? Check out my portfolio [here](https://afzal9632.github.io/) 🌐
 
-- 📄 Resume **[here](https://drive.google.com/file/d/1LPk4SqLAjHaUsD7vQAdHUBvHoNEvpDO8/view)**
+- 📄 Resume **[here](https://drive.google.com/file/d/12L6NqloTVBoE77weYA8YC_jx7B2VMuZG/view?usp=sharing)**
 
 
 ## Connect with me:

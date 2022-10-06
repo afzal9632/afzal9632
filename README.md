@@ -18,9 +18,9 @@
 
 - 📫 You will find me at **mdafzal9632@gmail.com**
 
-- 🗺️ Want to know more? Check out my portfolio [here](https://afzal9632.github.io/) 🌐
+- 🗺️ Want to know more? Check out my [portfolio](https://afzal9632.github.io/) 🌐
 
-- 📄 Resume **[Resume](https://drive.google.com/file/d/12L6NqloTVBoE77weYA8YC_jx7B2VMuZG/view?usp=sharing)**
+- 📄 **[Resume](https://drive.google.com/file/d/12L6NqloTVBoE77weYA8YC_jx7B2VMuZG/view?usp=sharing)**
 
 
 ## Connect with me:
